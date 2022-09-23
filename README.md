@@ -2,7 +2,7 @@
 
 Objetivo: objetivo es poder terminar de mi carrera de odontología, especializarme, salir con un buen promedio conseguir amigos que me ayuden a superarme en el futuro.
 
-Mi correo es: Gonzalovalerio15@gmail.com 
+Mi correo es: gonzalovalerio15@gmail.com 
 
 Experiencia de trabajo: He trabajado en un rancho familiar donde aprendí un poco de agricultura, he trabajado en una panadería, he trabajado haciendo y vendiendo tamales, y mi más grande proyecto fue haciendo eventos grandes donde incluso un partido político nos contrato.
 
